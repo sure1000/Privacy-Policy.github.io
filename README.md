@@ -1,4 +1,4 @@
-# Privacy-Policy-for-Cleanmax-App-Cleaner-Booster
+# Privacy-Policy
 
 Privacy Policy for Our Android Applications
 
