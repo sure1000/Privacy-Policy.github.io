@@ -1,0 +1,1 @@
+# Privacy-Policy-for-Cleanmax-App-Cleaner-Booster
